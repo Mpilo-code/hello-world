@@ -5,4 +5,4 @@ Hello!
 
 I'm Mpilo Ndlovu from Ladysmith 
 I like the tech world but im still new to it.
-My a Barcelona fan!!!!!1
+I'm a Barcelona fan!!!!!
